@@ -1,5 +1,3 @@
-Pre-orders are available at [Maker Made CNC](https://www.makermadecnc.com/shop)
+You can order now at [Maker Made CNC](https://www.makermadecnc.com/shop)
 
-We are on pace to ship in December.
-
-The first 150 pre-orders will receive free shipping worldwide!!
+We can't wait to see what you make!
