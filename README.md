@@ -1,5 +1,6 @@
 # The Complete Maslow Kit
 
+10% off + free shipping for forum users- Maslow10
 In stock with free projects, software, and support all included.
 
 If you're looking for the shortest distance between purchase and production, this is the kit!
